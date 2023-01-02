@@ -1,1 +1,10 @@
-undefined
+This is Chris Kwaks Developing space. 
+I was born in 1998, I'm male.
+I live in South Korea.
+I'm studying Life through various events. 
+Example, computer programming, trip to foregin regions, dancing, singing, reading books, fall into deep Love. 
+Be brave young souls. Nice to meet you. Be the passion.
+'열정이라는 의미의 “passion”이라는 말은 라틴어 pati에서 비롯되었다. 이는 “to suffer, endure”의 뜻으로 고통을 겪었다, 견디어 내다라는 뜻을 가지고 있다.'
+저는 삶이라는 여행을 온몸으로 겪고 성장합니다. 
+일상에 숨어서 똬리를 튼 (뱀 같은) 다양한 문제들에 구체적으로 접근해서 풀어내고 개선시켜 발전합니다. 
+변화와 혁신이라는 말은 저를 표현하는 Identity 입니다. 만나서 반갑습니다.
