@@ -17,4 +17,4 @@ Get yourself brave and do not give up young souls. Be the passion itself.
 
 변화와 혁신은 저를 표현하는 Identity 입니다. 
 
-만나서 반갑습니다.
+반갑습니다.
