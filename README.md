@@ -1,6 +1,5 @@
-![sky](https://user-images.githubusercontent.com/63998542/224912295-3a74ec1a-f1f6-4c4b-b295-8282180141e8.jpg)
+![image](https://user-images.githubusercontent.com/63998542/231204601-28d2bf12-0961-4338-94c2-6c8919475d8c.png)
 
-## Chris
 
 I love living life & various events. 
 (love analog way, trip, dancing, singing, reading, tattoos, deep Love.)
