@@ -6,7 +6,7 @@ I love living life & various events.
 
 Consistently train myself to overcome diversity of difficulty.
 
-**The importance of thinking at the overall view.** 
+### The importance of thinking at the overall view. 
 
 Humans instinctively feels the death and life itself. It means the concept of beginning is given at the certain unknown point.
 We can feel the end(death). We afraid it. Nothings going to be changed. Everything is beginning at the point. Everything is getting end at the point. Have you ever thinking about that this end point & beginning point are crossorigined at the mysterious way? This is the real difference. Reasoning over. We need to change our views to overly. That's what I'm talking about. 
