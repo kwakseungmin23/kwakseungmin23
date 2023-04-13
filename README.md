@@ -2,9 +2,12 @@
 
 <hr />
 
-I love living life & various events. 
+I love living life & various events.
+<br>
 (love analog way, trip, dancing, singing, reading, tattoos, deep Love.)
+<br>
 Consistently train myself to overcome diversity of difficulty.
+<br>
 '열정이라는 의미의 “passion”이라는 말은 라틴어 pati에서 왔습니다. 이는 **“to suffer, endure”** 의 뜻으로 고통을 겪었다, 견디어 내다라는 뜻을 가지고 있습니다.'
 
 ### The importance of thinking at the overall view. 
